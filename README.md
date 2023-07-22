@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @elbakaisaid
+- 👀 I’m interested in programming world
+- 🌱 I’m currently learning evrything about programation and I.A.
+- 💞️ I’m looking to collaborate on a new projects in new technologies.
